@@ -11,4 +11,8 @@
 ‎  ‎  ‎  ‎‎ ‎  ‎  ‎  ‎‎ 
 <div id="header" align="center">
 
-![img](https://i.postimg.cc/rp1sNRWj/Untitled99-20250202142020.png)‎  ‎  ‎  ‎‎ ‎  ‎ ‎ ‎  ‎  ‎  𑁍  ‎  ‎‎  ‎‎   ‎  ‎  ‎‎ ‎  ‎  ‎![img](https://i.postimg.cc/y8SkWb8w/Untitled99-20250202141756.png)
+![img](https://i.postimg.cc/rp1sNRWj/Untitled99-20250202142020.png)‎  ‎  ‎  ‎‎ ‎  ‎ ‎ ‎  ‎  ‎   ×  ‎  ‎‎  ‎‎   ‎  ‎  ‎‎ ‎  ‎  ‎![img](https://i.postimg.cc/021mgSdY/Untitled99-20250202144307.png)
+
+<div id="header" align="center">
+
+![img](https://i.postimg.cc/3JjG3wnP/Untitled99-20250202145240.png)   ‎  ‎  ‎‎ ‎  ‎  ‎  ‎‎  ![img](https://i.postimg.cc/8z16cVYs/Untitled99-20250202145300.png)‎  ‎  ‎  ‎‎ ‎  ‎  ‎  ‎‎  ![img](https://i.postimg.cc/7ZmTTWv9/Untitled99-20250202145323.png)
