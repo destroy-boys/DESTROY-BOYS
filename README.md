@@ -11,7 +11,7 @@
 ‎  ‎  ‎  ‎‎ ‎  ‎  ‎  ‎‎ 
 <div id="header" align="center">
 
-[![img](https://i.postimg.cc/3JjG3wnP/Untitled99-20250202145240.png)](https://rentry.co/roseysin)   ‎  ‎  ‎‎ ‎ ‎ [![img](https://i.postimg.cc/8z16cVYs/Untitled99-20250202145300.png)‎](https://megozi.atabook.org/)  ‎  ‎  ‎‎ ‎ ‎‎  [![img](https://i.postimg.cc/7ZmTTWv9/Untitled99-20250202145323.png)](https://4megz.straw.page)
+[![img](https://i.postimg.cc/3JjG3wnP/Untitled99-20250202145240.png)](https://rentry.co/geto-sama)   ‎  ‎  ‎‎ ‎ ‎ [![img](https://i.postimg.cc/8z16cVYs/Untitled99-20250202145300.png)‎](https://megozi.atabook.org/)  ‎  ‎  ‎‎ ‎ ‎‎  [![img](https://i.postimg.cc/7ZmTTWv9/Untitled99-20250202145323.png)](https://4megz.straw.page)
   
 <div id="header" align="center">
 
