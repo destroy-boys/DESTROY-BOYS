@@ -2,6 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=lightgrey&label=_᧔᧓_&base=1000)
 
+view in desktop mode stop. its ugly in phones
 ‎  ‎  ‎  ‎‎ ‎  ‎  ‎  ‎‎ 
 <div id="header" align="center">
 
