@@ -2,18 +2,13 @@
 
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=lightgrey&label=_᧔᧓_&base=1000)
 
-view in desktop mode stop. its ugly in phones
-‎  ‎  ‎  ‎‎ ‎  ‎  ‎  ‎‎ 
 <div id="header" align="center">
 
-![hyuluka](https://i.postimg.cc/mD39k68b/Untitled98-20250202141331.png)
-‎  ‎  ‎  ‎‎ ‎  ‎  ‎  ‎‎ 
-‎  ‎  ‎  ‎‎ ‎  ‎  ‎  ‎‎ 
-‎  ‎  ‎  ‎‎ ‎  ‎  ‎  ‎‎ 
+[Rentry](https://rentry.co/megz)⠀⠀⠀⠀⠀⠀[Atabook](https://lufeng.atabook.org/)⠀⠀⠀⠀⠀⠀[Straw](https://4megz.straw.page)
+⠀
+⠀
+redoing this shit in summer break enjoy weekly memes fir now 😳
+
 <div id="header" align="center">
 
-[![img](https://i.postimg.cc/3JjG3wnP/Untitled99-20250202145240.png)](https://rentry.co/megz)⠀⠀⠀[![img](https://i.postimg.cc/8z16cVYs/Untitled99-20250202145300.png)‎](https://lufeng.atabook.org/)⠀⠀⠀[![img](https://i.postimg.cc/7ZmTTWv9/Untitled99-20250202145323.png)](https://4megz.straw.page)
-  
-<div id="header" align="center">
-
-![img](https://i.postimg.cc/rp1sNRWj/Untitled99-20250202142020.png)‎  ‎  ‎  ‎‎ ‎  ‎ ‎ ‎  ‎  ‎  ‎‎ ‎  ‎  ‎![img](https://i.postimg.cc/021mgSdY/Untitled99-20250202144307.png)
+![](https://i.postimg.cc/3JQvtr4H/canon.jpg)
