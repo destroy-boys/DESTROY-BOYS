@@ -5,8 +5,8 @@
 <div id="header" align="center">
 
 [Rentry](https://rentry.co/megz)⠀⠀⠀⠀⠀⠀[Atabook](https://lufeng.atabook.org/)⠀⠀⠀⠀⠀⠀[Straw](https://4megz.straw.page)
-⠀
-⠀
+
+
 redoing this shit in summer break enjoy weekly memes fir now 😳
 
 <div id="header" align="center">
