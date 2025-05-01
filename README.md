@@ -11,4 +11,4 @@ redoing this shit in summer break enjoy weekly memes fir now 😳
 
 <div id="header" align="center">
 
-![](https://i.postimg.cc/zGqXdLbM/IMG-4689.jpg)
+<img src=https://i.postimg.cc/zGqXdLbM/IMG-4689.jpg width="300" height="300">
