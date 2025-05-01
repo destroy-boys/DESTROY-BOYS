@@ -11,4 +11,4 @@ redoing this shit in summer break enjoy weekly memes fir now 😳
 
 <div id="header" align="center">
 
-![](https://i.postimg.cc/fW2HWTfh/Screenshot-20250420-203358-Instagram.jpg)
+![](https://i.postimg.cc/zGqXdLbM/IMG-4689.jpg)
