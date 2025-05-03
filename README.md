@@ -7,14 +7,14 @@
 
 weekly memes ☝️ (trail ends in sumarbreak)
 
-<div id="header" align="left">
+<div id="header" align="center">
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Rentry](https://rentry.co/megz)⠀⠀⠀⠀[Atabook](https://lufeng.atabook.org/)⠀⠀⠀♪
+[Rentry](https://rentry.co/megz)⠀⠀⠀⠀[Atabook](https://lufeng.atabook.org/)⠀⠀⠀♪⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 <div id="header" align="center">
 
 <img src=https://i.postimg.cc/zGqXdLbM/IMG-4689.jpg width="300" height="300">
 
-<div id="header" align="right">
+<div id="header" align="center">
 
-[Straw](https://4megz.straw.page)⠀⠀⠀⠀[HotYaoi](https://github.com/5uguru)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Straw](https://4megz.straw.page)⠀⠀⠀⠀[HotYaoi](https://github.com/5uguru)
