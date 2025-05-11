@@ -7,7 +7,7 @@
 
 weekly memes ☝️ (trail ends in sumarbreak)
 
-jok below is by [#tsundere](https://github.com/Ioonatic)
+meme below is by [#tsundere](https://github.com/Ioonatic)
 
 <div id="header" align="center">
 
