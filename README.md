@@ -6,7 +6,8 @@
 <div id="header" align="center">
 
 weekly memes ☝️ (trail ends in sumarbreak)
-jok below is by @Ioonatic
+
+jok below is by [#tsundere](https://github.com/Ioonatic)
 
 <div id="header" align="center">
 
