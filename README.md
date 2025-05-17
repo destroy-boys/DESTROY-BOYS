@@ -11,7 +11,7 @@ meme below is by [#tsundere](https://github.com/Ioonatic)
 
 <div id="header" align="center">
 
-[Rentry](https://rentry.co/lordless)⠀⠀⠀⠀[helo?](https://atiny.fandom.com/wiki/Mingi)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+[Rentry](https://rentry.co/lordless)⠀⠀⠀⠀[Helo?](https://atiny.fandom.com/wiki/Mingi)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 <div id="header" align="center">
 
