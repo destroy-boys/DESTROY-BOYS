@@ -5,9 +5,7 @@
 
 <div id="header" align="center">
 
-weekly memes ☝️ (trail ends in sumarbreak)
-
-meme below is by [#tsundere](https://github.com/Ioonatic)
+weekly memes (readmes are a hassle) 🐛
 
 <div id="header" align="center">
 
