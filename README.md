@@ -9,7 +9,7 @@ weekly memes (readmes are a hassle) 🐛
 
 <div id="header" align="center">
 
-[Rentry](https://rentry.co/lordless)⠀⠀⠀⠀[Helo?](https://en.m.wikipedia.org/wiki/Lee_Do-hyun)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+[Rentry](https://rentry.co/lordless)⠀⠀⠀⠀[Helo?](https://cortis.fandom.com/wiki/Martin)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 <div id="header" align="center">
 
