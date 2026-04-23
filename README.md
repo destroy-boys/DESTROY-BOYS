@@ -13,7 +13,7 @@ weekly memes (readmes are a hassle) 🐛
 
 <div id="header" align="center">
 
-<img src=https://i.postimg.cc/V6RRztdB/Screenshot-20251129-155548-Chrome.jpg width="300" height="600">
+<img src=https://i.postimg.cc/V6RRztdB/Screenshot-20251129-155548-Chrome.jpg width="300" height="300">
 
 <div id="header" align="center">
 
