@@ -6,6 +6,7 @@
 <div id="header" align="center">
 
 weekly memes (readmes are a hassle) 🐛
+gonna stay true to the words above
 
 <div id="header" align="center">
 
