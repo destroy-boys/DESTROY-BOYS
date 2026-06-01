@@ -15,7 +15,7 @@ gonna stay true to the words above
 
 <div id="header" align="center">
 
-<img src=https://i.postimg.cc/qBYw4Jqw/457bb568dcac942d18091f81e2b7e152.jpg width="300" height="250">
+<img src=https://i.postimg.cc/QCdBBtVD/Screenshot-20260529-014023-Chrome.jpg width="300" height="190">
 
 <div id="header" align="center">
 
